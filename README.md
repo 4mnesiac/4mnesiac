@@ -15,7 +15,7 @@
 
 - 😄 I'm currently dreaming about **sunlight🏖️**
 
-- ⚡ Fun fact: **When your code works, you have no idea why🤷‍♂️**
+- ⚡ Fun fact: **When your code works, I have no idea why🤷‍♂️**
 
 
 <h2>Languages and skills</h2>
