@@ -13,7 +13,7 @@
 
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/aglazyrin/) or [Telegram](https://t.me/Amn3siac)
 
-- 😄 I'm currently dreaming about **sunlight🏖️**
+- 😄 I'm currently dreaming about **vacation🏖️**
 
 - ⚡ Fun fact: *When my code compiled successfully, I praise the sun!**
 
