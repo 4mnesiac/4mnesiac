@@ -11,7 +11,7 @@
 
 - 👨‍🎓 In my free time I'm learning **✨✨Next.js and Nest.js (cuz I like cats 😺)✨✨**
 
-- 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/aglazyrin/) or [Telegram](https://t.me/Amn3siac)
+- 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/aglazyrin/) or [Telegram](https://t.me/nh4nce)
 
 - 😄 I'm currently dreaming about **vacation🏖️**
 
